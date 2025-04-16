@@ -101,7 +101,7 @@ This project is licensed under the MIT License.
 
 **Omair Pall**  
 *Adapted and reviewed by [Hoang Cong Nghe](https://aicongnghe.blogspot.com/2025/04/skullcandy-rail-anc-am-thanh-cao-cap-va.html)*
-
+- [Thêm đánh giá](https://medium.com/@hoangchidaohoangquang/google-veo-2-tham-v%E1%BB%8Dng-l%E1%BB%9Bn-nh%C6%B0ng-ch%C6%B0a-%C4%91%E1%BB%A7-thuy%E1%BA%BFt-ph%E1%BB%A5c-d0f18d88a855)
 ---
 
 > “Premium sound, smart features, all without breaking the bank.” – Skullcandy Rail ANC
